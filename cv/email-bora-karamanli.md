@@ -1,23 +1,19 @@
-**Subject:** Application – Social Media Manager (Meta Ads) | Abdullah Alani
+**Subject:** Supporting your business launch in Jordan | Abdullah Alani
 
 Dear Bora Karamanlı,
 
-I am writing to apply for a social media marketing role at [Company Name]. I have five years of experience growing brands on social media, and I would love to bring that experience to a fashion and clothing brand.
+[I was given your contact by May Köprülü of Köprülü Eczanesi, who mentioned that] you are planning to open a branch of your business in Jordan and are looking for someone reliable on the ground. I would be glad to help.
 
-Until October 2026, I was Social Media Manager and Team Lead at iBestDesign (Ottawa, Canada, remote). I managed social media for several brands with a team of three. Some highlights:
+I am a Turkish citizen living in Amman, and I am a native Arabic speaker with fluent English. That means I can act as a direct, trustworthy link between you and the local market, whether that means dealing with suppliers, landlords and service providers, or following up on day-to-day matters while you are away.
 
-- Created video content that averaged about **40K views per video**
-- Built and optimised **Meta (Facebook & Instagram) ad campaigns** that increased lead generation by **60%**, with conversion rates above 15% of visitors
-- Delivered about **50 conversions a month at a 300% return on ad spend**
-- Grew follower bases organically and strengthened each brand's identity across posts, videos and user-generated content
+For the past five years I led a remote team for iBestDesign, a Canadian company, where I helped multiple businesses build their presence and win customers. That role taught me to work independently, manage people and projects, and be accountable to owners who were not in the same country as me. I hold a degree in Mechatronics Engineering from the German Jordanian University, so I am comfortable with practical and technical work as well as marketing.
 
-Fashion depends on strong visuals and paid social, which is where I have done my best work. I am a Turkish citizen, and I work in English, Arabic and German.
+I would welcome a short call to learn more about your business and what you need in Jordan, so I can tell you honestly where I can help most. I have attached my CV for your reference.
 
-My CV is attached. I would welcome the chance to discuss how I could help [Company Name] grow its audience and sales.
-
-Thank you for your time and consideration.
+Thank you for your time. I look forward to hearing from you.
 
 Kind regards,
 Abdullah Alani
+Amman, Jordan
 +962 79 621 0103
 Alani.abdullah@outlook.com
